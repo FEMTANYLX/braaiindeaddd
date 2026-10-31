@@ -2,6 +2,5 @@
 
 
 
+    𖦹  ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨.   𖦹
 
-
- 𖦹  https://files.catbox.moe/dtldki.png  𖦹
